@@ -1,0 +1,1 @@
+Are called [[keywords]] and don't only represent a thing, but their [[User Intent|intent]]

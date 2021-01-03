@@ -1,0 +1,1 @@
+You should have people with [[expertise]] and verifyable [[authorship]] writing for your site.

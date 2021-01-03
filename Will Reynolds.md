@@ -1,0 +1,1 @@
+A true Mensch with a sympathetic smile. If I lived in Philly I would work hard to work with him. His agency Seer Interactive has a logo I like, and they do nice Power BI stuff, combining organic and paid search data. In peace (I assume). Amazing. Imagine an agency with no beef – but peaceful cooperation –  between paid and organic search teams.

@@ -1,0 +1,1 @@
+Doesn't do any SEO. At. ALL! But talks an awful lot about it. Wears a kippot.
