@@ -1,1 +1,1 @@
-Loves orange. Made the most expensive link research tool and named it [[../Link Research Tool]] for researching [[Backlink|backlinks]]
+Loves orange. Made the most expensive link research tool and named it [[Link Research Tool]] for researching [[Backlink|backlinks]]

@@ -1,0 +1,5 @@
+[[developer]]
+[[user story]]
+[[acceptance story]]
+[[sprint]]
+[[agile]]

@@ -1,10 +1,14 @@
-The process
+aka. **The Process**
+
+The process whereby Google ingests information and excretes knowledge.
+
+Buzzwords of note: Second Wave.
 
 
-## Related to
-[[crawling]]
-[[indexing]]
-[[ranking]]
+See also:
+- [[crawling]]
+- [[indexing]]
+- [[ranking]]
 
 
 
